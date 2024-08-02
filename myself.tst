@@ -7,3 +7,4 @@ I have some goals which I want to acheive and one of my goal is to learn about A
 I am committed to working hard to achieve these goals
 My family and friends are my greatest support, and their encouragement motivates me to keep striving
 My journey is a continuous learning process
+This is my short introduction

@@ -6,3 +6,4 @@ I want to bring such skills that will help me in my future  and also embrace my 
 I have some goals which I want to acheive and one of my goal is to learn about AI,What is it,why is it.
 I am committed to working hard to achieve these goals
 My family and friends are my greatest support, and their encouragement motivates me to keep striving
+My journey is a continuous learning process
